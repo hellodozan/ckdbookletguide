@@ -7,4 +7,4 @@ I have two years of experience as a caregiver for CKD patients, and I want to sh
 I'm really excited about this project, and I hope it can help many people with CKD.
 
 ## Project Initiator:
-## Billy Febriana Y. (aka Dozan)
+Billy Febriana Y. (aka Dozan)
